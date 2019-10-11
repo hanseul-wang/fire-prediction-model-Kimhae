@@ -20,6 +20,8 @@ https://news.joins.com/article/23564231
 합계출산률은 오히려 증가했고 출산아 수는 감소했다. -> 여성이 줄어  
 혼인 외 출생률
 
+![표](http://cdn.bizwatch.co.kr/news/photo/2018/03/08/f12637ff8505a01a5a0be654a06a2e6d110102.jpg)
+
 가임여성 기준?  
 1. 여성의 인구가 줄어서? -> 출산률에 영향 x 출생률에 영향
 2. 
